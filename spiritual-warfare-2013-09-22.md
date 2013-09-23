@@ -1,6 +1,6 @@
 Crossings :: Numbers 22 - Balaam and his Donkey
 
-BACKGROUND:
+BACKGROUND
 ---
 Israel moved into the land of Moab after defeating the Amorites and the King of Og. The people of Moab knew the reputation of the Israelites and were "filled with dread" because they feared the Israelites would consume all the natural resources of their land. 
 
@@ -22,8 +22,8 @@ And God came to Balaam at night and said to him, “If the men have come to call
 
 Even though God allows Balaam to go with the men from Moab, His anger is kindled and sends the angel of the Lord to "stand in the way as his adversary"
 
-BALAAM AND HIS DONKEY:
-----------------------------------------------------------------------------------------
+BALAAM AND HIS DONKEY
+---
 As Balaam is riding along, his donkey suddenly swerves to avoid protect Balaam from the sword of the angel of the Lord. Balaam does not understand why his donkey is swerving so he beats his donkey three separate times on three separate occasions. 
 
 After the third instance of being struck, God opened up the mouth of the donkey, and she spoke to Balaam, asking why he was hitting her, she has a lifetime of good rice to him and has never done anything that would intentionally hurt him. Balaam can only agree with her because he knows she's right. 
@@ -36,7 +36,7 @@ And the angel of the Lord said to him, “Why have you struck your donkey these 
 
 Balaam repents as he now understands that the donkey was there to protect him from the angel of the Lord, and they all continue on their journey back to Moab. The angel of the Lord reminds Balaam of the requirement from God, "speak only the word that I tell you."
 
-# SPIRITUAL BATTLE:
+SPIRITUAL BATTLE
 ---
 There are a few spiritual battles here:
 - the one in Balaam's heart in being persuaded by money and honor
@@ -44,7 +44,7 @@ There are a few spiritual battles here:
 - the belt of truth - Balaam speaks the truth from the Lord regardless of what Balak paid him to say (eph 6:14)
 - the spiritual world is active in the physical world, even when we can't see it occurring.
 
-# INTERESTING NOTES:
+INTERESTING NOTES
 ---
 God sends the angel of The Lord but also protects Balaam via the donkey swerving to avoid the angel's sword
 
